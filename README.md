@@ -1,1 +1,1 @@
-<h1>hello, ieatnigggerrrrrrrrrrrrrrrrrrrrrrr!</h1>
+<h1>hello, bean!</h1>
